@@ -1,2 +1,15 @@
-# -video-editor-portfolio
-    My editing work
+# Lokesh Sharma
+
+🎬 Professional Video Editor  
+📱 Reels & Shorts Editing  
+✨ Davinci Resolve | CaCut
+
+## Services
+- Reel Editing
+- YouTube Video Editing
+- Motion Graphics
+- Color Grading
+
+## Contact
+Instagram: @low.key.editsss
+Email: sharmalokesh7042@gmail.com
